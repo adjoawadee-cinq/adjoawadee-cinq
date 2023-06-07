@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Adjoa Wadee. This is my github account for CINQ ICT 
